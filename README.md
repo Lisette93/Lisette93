@@ -26,5 +26,6 @@ I live in **Helsingborg** with my husband and our two sons. Outside of coding, I
 
 ## 📫 Get in Touch
 **Email:** lisettestorm@hotmail.com  
-**LinkedIn:** www.linkedin.com/in/lisette-storm-ab6744158
+[LinkedIn](https://www.linkedin.com/in/lisette-storm-ab6744158)
+
 
